@@ -1,4 +1,4 @@
-# Clever-Arinda-Biography
+# Clever Arinda Biography
 # Summary
 
 Arinda Clever (full name 'Arinda Ivan Clever) was born on 11th March, 1997, Katwe, Bitereko, Mitooma, (Bushenyi) 
